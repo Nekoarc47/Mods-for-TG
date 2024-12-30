@@ -72,4 +72,4 @@
 
 
 
-rnj ghjxbnfk njn pfdnhf yt c njq yjub dcnfytn Jokerge
+Omnis qui legerit cras pedem iniuriam surget Jokerge
